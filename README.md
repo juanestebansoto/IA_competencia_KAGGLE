@@ -6,3 +6,5 @@ Juan Esteban Soto Taborda (CC.1007222787) Ingeniería Industrial
 Alexander Amaya Leon (CC.1026153324) Ingeniería Industrial
 
 Entrega 2:https://www.youtube.com/watch?v=HaLwkM7W0xQ&ab_channel=JUANESTEBANSOTOTABORDA
+
+Entrega final: 
